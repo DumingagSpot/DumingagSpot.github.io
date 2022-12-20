@@ -1,1 +1,0 @@
-# DumingagSpot.github.io
